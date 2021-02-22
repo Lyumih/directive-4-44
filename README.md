@@ -10,7 +10,7 @@
 1. Дать каждому возможность приумножить многократно свой вклад в Мировую Историю
 
 
-# *Чат в телеграмм [@directive444](t.me/directive444)*
+# *Чат в телеграмм [@directive444](https://t.me/directive444)*
 
 
 
@@ -48,5 +48,5 @@
 2. m.ivanov1225@gmail.com
 3. https://vk.com/mikhail_eco_coach
 
-# Чат в телеграмм [@directive444](t.me/directive444)*
+# *Чат в телеграмм [@directive444](https://t.me/directive444)*
 
